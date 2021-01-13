@@ -1,2 +1,1 @@
-# botlist
-botlist am
+WENSAMİTA NEİVA - BOTLİST BOTU
